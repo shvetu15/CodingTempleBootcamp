@@ -1,0 +1,1 @@
+This is a sample page for a law firm website (mockup enclosed)
